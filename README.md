@@ -1,4 +1,4 @@
-### Hi there, I'm Aqua22[website] 👋
+### Hi there, I'm Aqua22 👋
 
 ## I'm a 15 years old begginer developer!
 
